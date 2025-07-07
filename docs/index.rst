@@ -1,4 +1,4 @@
-How to Activate PC Matic
+How to Activate PC Matic?
 ========================
 
 PC Matic is a leading security and performance optimization software designed to protect your computer from viruses, malware, and system slowdowns. Once you have successfully installed PC Matic on your computer, the next crucial step is to activate the software using your unique license key. Activation ensures that the software runs smoothly and that you can take full advantage of all its features, such as real-time protection, system optimization, and malware removal.
